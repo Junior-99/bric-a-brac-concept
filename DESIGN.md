@@ -1,0 +1,3 @@
+# A place worth finding
+
+Vintage travel journal: burgundy ink, cream ruled paper, Fraunces editorial display, small uppercase captions, photo borders, crooked postcard stacks and stamp motifs. Split into café, art/framing, private gatherings and journal. A physically modelled wood frame has live proportions and mat/finish controls; the homepage is a full-width actual interior image with huge overlaid logotype. This differs deliberately from Tendo's blue spatial gallery and Devas' pink beauty editorial. Inspiration is antique café print ephemera and boutique hospitality journals; original code, no paid assets.
